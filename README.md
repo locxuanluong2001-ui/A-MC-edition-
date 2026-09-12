@@ -1,2 +1,3 @@
 # A-MC-edition-
-<img width="400" height="400" alt="1001924917" src="https://github.com/user-attachments/assets/137ff6f1-b632-42bd-974c-1e00c770796c" />
+
+<img width="1920" height="1080" alt="1001932500" src="https://github.com/user-attachments/assets/cb10ed99-dfeb-470c-8eb0-0d0a6d78de9c" />
