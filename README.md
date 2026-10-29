@@ -1,5 +1,6 @@
-# A MC EDITION 
-<img width="1920" height="1080" alt="1001935592" src="https://github.com/user-attachments/assets/4c605f30-5368-4477-9613-1c9118b8e62a" />
+# A×MC EDITION 
+<img width="1600" height="720" alt="1002153943" src="https://github.com/user-attachments/assets/7fc575a1-6ec6-411f-8906-6cb5c76c199b" />
+
 # A-MC-edition- một trải nghiệm đầy đủ và chính thức 
 
 📱 chip
